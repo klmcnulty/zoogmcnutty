@@ -1,3 +1,3 @@
 # zoogmcnutty
 
-Hello person looking at my page ;)
+Hello person looking at my page :P
